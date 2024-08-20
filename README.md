@@ -1,5 +1,5 @@
 ## Bem vindos ao meu perfil🎱
-sou o jonathan
+Sou o jonathan
 
 Sou cristão
 Sou musico 🥁
